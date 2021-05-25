@@ -1,5 +1,7 @@
 Shane Takuchi
+<br>
 shanetakeuchi19@gmail.com
+<br>
 Grinnell College (2018-2022)
 
 
